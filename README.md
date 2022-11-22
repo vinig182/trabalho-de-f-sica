@@ -1,1 +1,1 @@
-# trabalho-de-f-sica
+# trabalho-de-fisica
